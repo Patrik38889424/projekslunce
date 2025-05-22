@@ -1,2 +1,0 @@
-# projekslunce
-Projekt Slunce1
